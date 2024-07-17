@@ -1,9 +1,10 @@
-# Bedu_AI-Creativa_Team42_chatGPT
+# 🎶✨ ¡Nuevo Sencillo en Camino! ✨🎶 
 
-Aquí encontrarás la presentación del equipo 42: https://github.com/WarriorVejar/Bedu_AI-Creativa_Team42_chatGPT/blob/90cf2f741beded2fbd280ae6850b1bee4cf39c83/Bedu_AI%20Creativa_Team42_chatGPT.pdf
+Hola amigos de la música 🎧🌟 Este 15 de agosto estaré lanzando "A Tiempo (Tostado Frugal)", una versión íntima que explora la pérdida de un ser querido. Marca tu calendario y únete a mí para escuchar esta emotiva canción que nos conecta a través de la música. 🎸🎤
 
-# Participantes:
-- **Mariana de Jesús García Antunez**
-- **Christian Gabriel Torres Serralde**
-- **Alejandro García Vejar**
-- **Oscar Ortega Carballo**
+🎧👉 Escucha "A Tiempo (Tostado Frugal)" a partir del 15 de agosto en Spotify, Apple Music y más. ¡No te lo pierdas! 👈🎶
+
+#NuevoSencillo #ATiempoTostadoFrugal #MúsicaEmotiva #PopElectrónico #RockIndie #PérdidaYRecuerdo #TinyBarsOfSoap #LanzamientoMusical #EscuchaYa #EmociónMusical #MúsicaParaElCorazón
+
+---
+![A Tiempo](https://i.scdn.co/image/ab67616d0000b273228c78fa391ffec5aa6a056e)
