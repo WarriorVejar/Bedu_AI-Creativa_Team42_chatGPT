@@ -1,0 +1,1 @@
+# Bedu_AI-Creativa_Team42_chatGPT
